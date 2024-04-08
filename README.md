@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @emilliewbr-14 but you can call me Emy
+- 👀 I’m interested in mechanical and biomedical engeneerings, languages and neuroscience
+- 🌱 I’m currently learning Python, JavaScript and C++
+- 💞️ I’m looking to collaborate on vehicle dynamics and AI projects
+- 📫 How to reach me Ig: @emy_betti / LinkedIn: Emillie Weber
+- 😄 Pronouns: She/ her
+- ⚡ Fun fact: I like to learn languages through videogames
